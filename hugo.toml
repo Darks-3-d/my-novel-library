@@ -4,5 +4,11 @@ title = 'My Private Library'
 theme = 'book'
 
 [params]
-  BookSearch = true
+  # Enables the Dark/Light switch in the sidebar
   BookTheme = 'auto'
+  # Centers the text with professional margins
+  BookWidth = '800px'
+  # Makes text easy to read for long novels
+  BookFontSize = '18px'
+  # Enables the search bar to find chapters quickly
+  BookSearch = true
