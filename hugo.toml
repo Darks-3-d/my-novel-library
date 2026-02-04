@@ -12,3 +12,9 @@ theme = 'book'
   BookFontSize = '18px'
   # Enables the search bar to find chapters quickly
   BookSearch = true
+ # Enables the modern menu structure
+  BookMenuBundle = true
+  # Professional e-reader width
+  BookWidth = '1200px' 
+  # Set to 'true' to allow the grid columns
+  BookColumns = true
