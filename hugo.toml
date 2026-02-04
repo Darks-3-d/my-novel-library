@@ -1,0 +1,8 @@
+baseURL = 'https://Darks-3-d.github.io/my-novel-library/'
+languageCode = 'en-us'
+title = 'My Private Library'
+theme = 'book'
+
+[params]
+  BookSearch = true
+  BookTheme = 'auto'
