@@ -1,0 +1,480 @@
+---
+title: "Chapter 1015"
+weight: 1015
+---
+
+Episode 1014: You Caught Me Today. (4)
+
+"Do you have something you want to ask?"
+
+"Yes."
+
+Namgung Do-Wei scratched his head slightly. What suddenly came to mind
+were Chung Myung's words that he shouldn't confront them directly.
+Knowing what Namgung Hyuk was about to ask, Namgung Do-Wei didn't want
+to control their choices as he pleased.
+
+"It's not that I don't have something I want to say, but this choice is
+entirely yours. I cannot force you."
+
+However, Namgung Hyuk shook his head as if that wasn't the case.
+
+"I know that, young lord. However."
+
+"Uh?"
+
+"Can we just have a conversation?"
+
+"... conversation?"
+
+"Yes, conversation."
+
+Namgung Hyuk glanced at Namgung Do-Wei.
+
+"Actually, all this time, I... thought that if the young lord ordered
+us, we should simply follow. I thought that was our goal."
+
+"..."
+
+"But after coming here, I think that if I had asked and talked frankly
+about why the young lord had made me do this kind of training, things
+would have been better."
+
+Namgung Do-Wei stared blankly at Namgung Hyuk, then scratched the back
+of his head with an awkward expression.
+
+"If the young lord doesn't want it, there's nothing I can do, but if
+possible, I would like to talk about it with you. I think I will regret
+it if I don't."
+
+"..."
+
+"Can't I?"
+
+Namgung Do-Wei waved his hand, unable to hide his embarrassment.
+
+"H-How can you not be allowed to ask?"
+
+"I can?"
+
+He nodded.
+
+"Of course, I would rather you ask."
+
+As soon as he finished speaking, the swordsmen of Namgung gathered
+around Namgung Do-Wei. It seemed they too felt the same way as Namgung
+Hyuk.
+
+"Um... young lord, did you know that they were strong?"
+
+"What do you think the secret behind it is?"
+
+"If we follow that training, can we really get as strong as them?"
+
+Namgung Do-Wei, flustered by the barrage of questions, raised both
+hands.
+
+"W-wait now."
+
+"Yes?"
+
+"Let us take our time and not rush. Isn't the night long?"
+
+Everyone nodded as if they understood and sat around Namgung Do-Wei.
+
+Namgung Do-Wei looked at them one by one.
+
+'Has there ever been a time like this?'
+
+He had tried to persuade and lead them before. But as Namgung Hyuk said,
+he didn't remember having a real 'conversation.'
+
+Leading from the front and trusting and following from the back---that
+was the way of the Namgung family.
+
+That is why Namgung Do-Wei tried to become a strong leader for the
+family, a strong lord who could raise and lead them without leaving
+anyone behind.
+
+But then...
+
+'Right.'
+
+Maybe there was no need to stick to that old way.
+
+He knew they were still lacking. Shouldn't those who were lacking fill
+in each other's shortcomings?
+
+He nodded with a determined face and said.
+
+"Hyuk."
+
+"Yes, young lord."
+
+"Go and bring Dan too."
+
+"Yes."
+
+"And..."
+
+Namgung Do-Wei smiled strangely. It was a peculiar expression that
+somehow resembled Chung Myung.
+
+"Quietly leave the estate..."
+
+'What?'
+
+"Bring us some alcohol."
+
+"A-alcohol?"
+
+The swordsmen all looked at Namgung Do-Wei in surprise, but he calmly
+nodded.
+
+"Yes, alcohol."
+
+"W-why alcohol now?"
+
+"I think it is needed now."
+
+He shrugged his shoulders and smiled broadly.
+
+"I have experienced it once, and it is easier to talk when there is
+alcohol. Since our situation has come to this, let's let it all out
+today and have an honest talk."
+
+"..."
+
+"Can we not?"
+
+Namgung Hyuk nodded with a serious expression.
+
+"I will bring you a cart of it!"
+
+"Nice."
+
+Namgung Hyuk picked a few people and led them out. Namgung Do-Wei smiled
+at that.
+
+"Let us take it slowly. Maybe... we have too much to say to each other."
+
+Maybe it should have been like this from the start.
+
+They were suffering from too much pressure. Just as Namgung Do-Wei was
+feeling the weight of having to lead them, they must have felt a sense
+of responsibility to become the skilled people supporting the Namgung
+family.
+
+Maybe what they really needed was a conversation where they could put
+everything down and support each other, rather than heavy words
+reminding each other of their duties.
+
+After a short while, Namgung Hyuk brought alcohol and poured a bottle
+for them all. Namgung Do-Wei lightly picked up the bottle in front of
+him.
+
+"Let's have a drink."
+
+"..."
+
+However, the others, except for him, couldn't readily pick up the
+bottle. Their faces showed doubt about whether doing that was truly
+okay.
+
+Namgung Do-Wei did not wait for them and gulped down the drink in his
+hand as if showing off.
+
+"Eukk!"
+
+Just like Chung Myung had done before, he wiped his mouth with his
+sleeve and smiled at everyone.
+
+"Am I the only one drinking?"
+
+Those who had been watching the situation carefully finally picked up
+their bottles one by one and sipped.
+
+"Eukk."
+
+"Ah. So bitter."
+
+After taking a sip, they all looked back and forth between the bottle
+and Namgung Do-Wei with new expressions.
+
+And then...
+
+"Kuak."
+
+"Ehehe."
+
+Everyone burst into laughter.
+
+"This is my first time drinking with the young lord."
+
+"Yes. The young lord doesn't really like drinking, so."
+
+"It feels so odd."
+
+Words began to flow out carefully, one by one. Stories that had been
+kept tightly shut, stories that couldn't be easily revealed.
+
+Namgung Do-Wei smiled as the words slowly came out.
+
+-Don't force them.
+
+Perhaps those words didn't mean just to leave them to make a decision.
+
+"Let's drink until dawn."
+
+"Yes, young lord."
+
+Namgung Do-Wei smiled and lifted the bottle.
+
+It seemed like tonight would be a long one for him, too.
+
+"Tsk."
+
+Gulp. Gulp. Gulp.
+
+Chung Myung clicked his tongue briefly and drank the alcohol. Then he
+smiled while emptying the bottle.
+
+"This is why they are called a prestigious family..."
+
+Below, the conversation between the Namgung family's swordsmen could be
+faintly heard. Chung Myung shook his head.
+
+It seemed he finally understood what had to be done. Chung Myung let out
+a deep sigh.
+
+'Even then...'
+
+It was fun in its own way. It reminded him of the old Mount Hua.
+
+"Right, drink, you brats. Don't live with a face like you're carrying
+all the burdens of the world on your backs."
+
+A moderate amount of tension was helpful, but excessive pressure would
+eat away at people.
+
+"Euh, anyway, I told you they have dirty hands."
+
+Chung Myung shook his head and took another sip of the alcohol while
+looking at the moon in the sky.
+
+------------------------------------------------------------------------
+
+Chung Myung blankly stared at those standing in front of him.
+
+Right, the numbers were good.
+
+He thought that the three-tenths of a percent would run away, but at
+first glance, no one was missing. It seemed that the drinking party last
+night had taken effect.
+
+If the number had been reduced somewhat, it would have been easier for
+Chung Myung to teach, but in any case, this was beneficial for Namgung
+to have everyone train.
+
+So, he wasn't dissatisfied with the numbers... but...
+
+"Euk."
+
+"D-Don't puke!"
+
+"My stomach... my stomach hurts so bad..."
+
+"No, I told you to move over there and puke!"
+
+"EUKKKK!"
+
+"..."
+
+The light drained out of Chung Myung's eyes.
+
+'This isn't a flower garden.'
+
+The flushed and pale faces were all mixed together, making a colorful
+display.
+
+Was that all?
+
+Even though they were clearly keeping some distance, the smell of
+alcohol coming from them was so bad that he felt like holding his nose.
+
+"... Yah!"
+
+"What?"
+
+"... how much did you drink?"
+
+"..."
+
+Chung Myung was shocked at the situation and couldn't do anything.
+
+'No, I thought Namgung Hwang was the only one who didn't know what to
+do.'
+
+It was obvious they had been drinking as much as they could get right
+away. Since when did the Namgung family's traditions change this
+drastically?
+
+Even the Peng family wouldn't do this, you morons!
+
+"To see a day when..."
+
+"..."
+
+"Forget it..."
+
+When Chung Myung couldn't even continue speaking, Namgung family
+swordsmen glanced at one another.
+
+'This is why I said let us drink moderately!'
+
+'No, did you think this happened because I wanted it to?'
+
+'What is the point of wasting the remaining alcohol!'
+
+'If a man draws a sword, he should at least down a bottle!'
+
+'Doesn't the young lord seem to be going down? T-there! He is falling,
+hurry up and catch him!'
+
+Kwang!
+
+"Oh my! Young lord!"
+
+"Open your eyes!"
+
+"Get him up quickly!"
+
+"Ughh..."
+
+People rushed to Namgung Do-Wei, who had finally fainted. They tried
+their best to get him up, but it seemed easier to just move him like a
+puppet with its strings cut.
+
+"N-no more drinks..."
+
+"Oh my, young lord! Come to your senses now!"
+
+"Someone, go and get me some cold water! Hurry up!"
+
+Chung Myung pressed his fingers against his throbbing temples. Looking
+at them made his headache worse.
+
+"... They are doing all sorts of things. They are doing everything they
+can."
+
+He let out a deep sigh.
+
+As if Mount Hua wasn't enough, now these people were causing trouble
+too.
+
+"Anyway... if you came here, it means you want to receive training,
+right?"
+
+"Yes!"
+
+A loud response came back.
+
+"... in this state?"
+
+"..."
+
+This time, a strange silence fell. Chung Myung continued to press his
+forehead.
+
+"Is training that easy for you guys? Huh? Easy or what? You want to
+train with this kind of body?"
+
+"We can do it!"
+
+"Just let us!"
+
+"We will do our best without any complaints!"
+
+Just looking at their eyes, they were like loyal martyrs going to the
+battlefield to die for their country. Looking at their bodies, though,
+they were defeated soldiers who had just returned.
+
+But...
+
+"Taoist."
+
+Namgung Do-Wei, who was staggering, stood up straight and spoke to Chung
+Myung.
+
+"Just give them the order."
+
+"..."
+
+There was a confidence never seen before in Namgung Do-Wei's eyes. It
+wasn't the confidence that came from his position as lord of the family,
+but the confidence of someone who understood his own situation.
+
+"Then we will do our best to follow."
+
+"..."
+
+"So don't worry... eukkk!"
+
+"Where is the cold water?"
+
+"I-I am bringing it!"
+
+"..."
+
+Chung Myung let out a long sigh.
+
+Right, well. Unlike yesterday, when they were like sand, they came
+together like mud now. Things that shouldn't be together were mixed in,
+so that was why... alcohol was.
+
+"Well."
+
+"Yes!"
+
+"... fine, let us just run and get started. Do you see the mountain
+there?"
+
+"Yes!"
+
+"Go and take a look at the peak."
+
+"Yes!"
+
+'Run!'
+
+"I am going first!"
+
+The Namgung swordsmen shouted and began running toward the peak Chung
+Myung pointed to.
+
+Chung Myung watched them roll over and get up, then mumbled as they ran
+again.
+
+"... the path of suffering is clear. The path of suffering is so clear."
+
+-Just ease it then.
+
+"No, that is someone else's duty!"
+
+He swore at the sky, but after a while, he chuckled as he saw the
+Namgung family running.
+
+"When will they turn into people? Ugh... yah, run!"
+
+The warm sunlight poured down on the backs of the Namgung family as they
+ran with all their might.
+
+"E-Eukk!"
+
+"I told you not to throw up near me!"
+
+Of course... it wasn't just warm...
+
+[]{#0120_Episode_1015_You_Caught_Me_Today_5.xhtml}
+
+#

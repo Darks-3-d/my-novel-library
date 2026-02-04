@@ -1,0 +1,425 @@
+---
+title: "Chapter 711"
+weight: 711
+---
+
+Episode 710: I Need To Confirm (5)
+
+Thud.
+
+The sound of the dead body falling was clearly heard.
+
+It was strange.
+
+On the battlefield, where people were shouting at each other and waving
+their weapons, one could hear the sound of people falling as they died.
+
+To put it conversely, it meant the flow of the battle was so fierce that
+it couldn't be interrupted.
+
+The moment the swords of Mount Hua disciples, who were attacking
+fiercely from the front, stopped, the Iron Rabbit clan turned their
+heads blankly, not thinking about running, let alone fighting back.
+
+What caught their eyes was the dead form of Heo Hyung and their clan
+leader, with a twisted neck and pierced heart.
+
+The eyes, which had witnessed something that could never happen and
+shouldn't happen, were shaken, unable to find a place to move.
+
+The blood flowing from Heo Hyung's pierced chest quickly soaked the
+floor red.
+
+As they were looking at it, they felt like they could vividly feel the
+temperature of the blood cooling down.
+
+Since they had seen their clan leader and even the guests they had
+invited simply fall so helplessly, there was no longer any resistance
+among the members of the Iron Rabbit clan.
+
+Revenge for the clan leader?
+
+No one would even jest about it.
+
+Those who had the will to do so were not of the evil faction. They were
+driven by strength and gain, not loyalty and affection. The clan leader
+did not receive special protection.
+
+'What do we do?'
+
+Their bodies began to shake.
+
+Clack.
+
+Chung Myung swung the sword, brushed the blood off, and started walking.
+Blood gushed out of the chest wound of Heo Hyung.
+
+Everyone held their breath at that clear and strange sound.
+
+Snap.
+
+Chung Myung walked ahead without much care, sword in one hand, and
+naturally went for Mak Wei.
+
+The face of Mak Wei in front of him was white.
+
+He glanced at Heo Hyung, who had collapsed, and then quickly looked at
+Chung Myung.
+
+'Heo, Heo Hyung...'
+
+It was ridiculous.
+
+Heo Hyung's strength was not inferior to his. Even if they were to
+classify it, there was only a difference as thin as a piece of paper.
+
+However, Heo Hyung died before he could properly fight back. It wasn't
+that he had done something great or was overpowered by an enormous
+amount of internal qi.
+
+Just a swing, stab, and cut.
+
+After several basic attacks, Heo Hyung's heart was pierced.
+
+How on earth should they understand this situation?
+
+If someone who didn't know martial arts saw it, they might say it was
+amazing. However, if someone well-versed in martial arts saw it, they
+would still say it was amazing.
+
+But what about those like Mak Wei, who were confident in their status?
+Probably not everyone would be able to find a way to explain the sight.
+Mak Wei found himself at an absolute loss.
+
+Step.
+
+It was the sound of Chung Myung's steps that brought him back to
+reality.
+
+A low voice from Chung Myung could be heard by him, who was startled.
+
+"What is so confusing?"
+
+Mak Wei, who heard the voice, looked at Chung Myung with a blank
+expression.
+
+"You are going to die anyway."
+
+"...."
+
+Instead of answering, Mak Wei held his sword tightly.
+
+That was right.
+
+In any case, the only outcome was that one between them would die. How
+strong he was and how weak, what meaning would this have in the current
+situation?
+
+The ending of a life feeding on the weak was like this. Anyone who lived
+and wielded the sword with abandon would one day meet someone stronger
+than themselves. Mak Wei, too, thought the same.
+
+'But I didn't think it would be today.'
+
+His pounding heart gradually calmed down. His face, once terrified,
+turned as calm as a lake.
+
+Step.
+
+Seeing that, Chung Myung stopped.
+
+Tsk.
+
+Mak Wei pointed his blade at the ground, grabbed it tightly with both
+hands and aimed it at Chung Myung.
+
+"... Giant Spirit... Mak... Wei."
+
+Every time he spoke, he felt pain, and his words stuttered, but he
+somehow managed to speak word by word. At least the name must be
+conveyed clearly.
+
+"You..."
+
+The corners of Chung Myung's lips curled up slightly as if he understood
+his intention.
+
+"Chung Myung."
+
+"... Divine Dragon."
+
+Mak Wei, who once again confirmed the obvious fact, glared at Chung
+Myung with more serious eyes.
+
+"Last... last... last word...."
+
+Chung Myung's smile deepened.
+
+"Try it."
+
+If it were the usual Mak Wei, he would never let this happen. But now he
+wasn't even feeling anger.
+
+Because maybe this match will be the last?
+
+No.
+
+Because the man deserved it.
+
+A lake of strength was ultimately a place where the strong ruled. The
+strong had the right to be arrogant. Mak Wei was one of those who knew
+that fact better than anyone else.
+
+The energy swirled in the air. He held onto the sword so tightly.
+
+His head was cold, his chest was hot.
+
+Martial arts he cultivated throughout his life were now being put into
+execution. The important thing wasn't winning or losing but doing things
+without regret.
+
+"Huk!"
+
+The foot loaded with qi kicked the ground.
+
+The scenes before his eyes distorted in an instant. The clear scenery
+elongated, and only Chung Myung in front of him became clearer.
+
+This was a level he had never been able to reach in his entire life.
+
+Although it was unfortunate that he reached it at the last moment, he
+could take comfort in the fact that he reached it now.
+
+Grrrr.
+
+All the remaining power of his dantian was channeled into the blade. His
+blade, unable to handle that enormous qi, screamed loudly. It seemed
+like it would break, but it didn't matter.
+
+Anyway, this blow was indeed the last.
+
+"Haaaaah!"
+
+A loud roar from his blade. The blade qi came together like a small sun
+and began to give off heat. The task of pushing everything in without
+leaving a single trace of regret or emotions was struck at Chung Myung's
+head.
+
+At that moment, Mak Wei was sure.
+
+This was the most perfect blow of his life.
+
+Kwaaa!
+
+It flew toward Chung Myung's head with a force capable of killing down
+the mountain. A shiver ran up his spine. An intense feeling of pleasure
+surged through his head as if a cold waterfall had been poured over him.
+
+In the midst of these emotions, what Mak Wei saw was the twisted lips of
+Chung Myung.
+
+Paaat!
+
+The sword of Chung Myung, which had been hanging down until then, shot
+up like a beam and struck Mak Wei's blade.
+
+Kaaaang!
+
+The moment the sword and blade collided, Chung Myung's sword, unable to
+handle the enormous strength of the blade, was thrown back.
+
+Mak Wei's eyes widened.
+
+'I won.'
+
+Facing the onslaught head-on was his best strategy. There was no way
+Mount Hua's Divine Dragon didn't know this, but his arrogance of the
+moment....
+
+And then it happened.
+
+Chung Myung's sword swung faster than it had bounced and struck the
+blade again.
+
+Kaang!
+
+And again!
+
+Kaang!
+
+Once, twice, dozens of times!
+
+In the blink of an eye, the sword, which was swung like water, struck
+Mak Wei's blade dozens of times.
+
+Slash!
+
+Every time they made contact, the power of the blade diminished little
+by little, and soon, it began to falter further and further.
+
+Mak Wei suddenly realized that his blade had moved to the top of his
+head from where it was first lifted, and his mouth was wide open.
+
+'T-this makes no sense...'
+
+How could he strike dozens of times in one swing with his sword? This
+was something that went far beyond the knowledge of martial arts.
+
+"Ahhh!"
+
+At that moment, when Mak Wei was about to push down the blade once again
+as a last effort.
+
+Paaaat!
+
+Chung Myung's sword moved at the speed of light and sliced off Mak Wei's
+wrist, which was holding the blade.
+
+Slash!
+
+The white bone was clearly revealed from the wrist, and blood splashed
+out.
+
+However, Chung Myung's sword didn't stop there.
+
+Slash! Slash! Slash!
+
+The upper arm, elbow, shoulder, stomach.
+
+Chung Myung's sword cut down Mak Wei's entire body again and again.
+
+Slash! Slash! Slash!
+
+Thigh, ankles, neck side, and lower abdomen.
+
+Chung Myung, who quickly severed the muscles of the entire body at once,
+rushed forward like a star shower and stabbed Mak Wei's upper body
+several times.
+
+Slash! Slash! Slash! Stab!
+
+In an instant, blood rained down from Mak Wei's perforated chest and
+stomach.
+
+Kuaak!
+
+The final hit to the heart.
+
+Chung Myung, who had pierced the heart in an instant, watched Mak Wei
+silently as he was hit by the blood gushing out of the opponent's body.
+
+In a face stained with blood, only the eyes of the original color could
+be seen, and they were dark and indifferent. Even Mak Wei, who had
+crossed halfway to hell, felt the fear of death.
+
+"... why?"
+
+A groan-like question came from his lips.
+
+He could only say this as he was dying, but Chung Myung understood it.
+
+Chung Myung smiled as he said,
+
+"Warrior?"
+
+"..."
+
+"Don't try at the last to act like you made an honest living. You are
+just trash."
+
+"..."
+
+"Die like trash."
+
+"... I ...."
+
+Paaat!
+
+The sword of Chung Myung was pulled from his heart, then struck Mak
+Wei's head at once and cut it as if he didn't want to hear the words.
+
+"Haa."
+
+Chung Myung spat out the blood that had entered his mouth.
+
+A man who smelled like blood. A human butcher who killed hundreds.
+
+He had no desire to give something to someone like that.
+
+'I am not much different.'
+
+Swish!
+
+Chung Myung brushed off the blood and took the lead.
+
+Without hesitation, he stepped on the corpse of Mak Wei and walked to
+the half-destroyed castle.
+
+Step.
+
+Step.
+
+The weight of those footsteps filled the place.
+
+Step.
+
+And he finally went to the place where he saw Jin Yang-Geon trembling
+like a rat.
+
+The moment their eyes met, Jin Yang-Geon went pale.
+
+"I.. I... I..."
+
+His body trembled.
+
+How many people could stay calm after seeing Chung Myung's cold eyes and
+blood-soaked body? Jin Yang-Geon was too weak to smile.
+
+Clench.
+
+At that moment, Chung Myung distorted his face horribly and gritted his
+teeth, quickly approaching Jin Yang-Geon.
+
+"I-I am! Me! Me! I am!"
+
+Without hesitation, Chung Myung grabbed Jin Yang-Geon by the neck and
+lifted him up. Then he pushed him all the way to the wall and threw him
+down.
+
+Lwang!
+
+"Kuak! Cough!"
+
+Jin Yang-Geon was sick with the pain he felt in his neck. But what truly
+made him fearful and pained was the look of Chung Myung, ready to kill
+him.
+
+"I-I did wrong! S-save me..."
+
+"Speak."
+
+Jin Yang-Geon didn't understand what he meant and looked at Chung Myung.
+Then, the voice of hell came from Chung Myung's lips.
+
+"Speak. Where did you learn that martial arts?"
+
+"M-Martial arts?"
+
+Clench!
+
+"Kua!"
+
+Chung Myung's fingers dug into Jin Yang-Geon's neck. Jin Yang-Geon's
+face turned dark blue, and he began to suffocate.
+
+His hand instinctively grabbed his neck and scratched at Chung Myung's
+arm, but Chung Myung was like a rock and didn't budge.
+
+"Speak. Before I kill you!"
+
+Chung Myung's tightly clenched lips moved, and a trickle of blood ran
+down his chin and onto the ground.
+
+[]{#0711_Episode_711_I_Need_To_Confirm_6.xhtml}
+
+#

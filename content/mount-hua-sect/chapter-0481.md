@@ -1,0 +1,523 @@
+---
+title: "Chapter 481"
+weight: 481
+---
+
+Episode 480: If You Feed One Well, You Are A Good Person! (5)
+
+Wheeeeing! The strong blizzards came rushing in.
+
+In the pitch-black of the night, even wide-open eyes couldn't see
+through the blocked-off vision.
+
+Shhhh.
+
+Amidst that unforgiving darkness where beasts roamed, a person dressed
+in a robe darker than the night walked along the white wall of the Ice
+Palace like a ghost.
+
+Tak.
+
+He concealed himself in the castle's corners and wrapped his arms around
+himself like a hug.
+
+"Ughhh... I'm really going to freeze to death."
+
+He had brought warm clothes, but he didn't anticipate that the place
+would be this cold. Chung Myung's teeth were constantly chattering
+beneath his mask.
+
+"What kind of riches have I even experienced..."
+
+The coldness made him shiver, even when he wore the animal skin and now
+just the plain black clothes at night. It was hard to imagine how
+terrible it would be outside.
+
+"Eik!"
+
+"Shut it, brat!"
+
+Baek Ah, tucked into his clothes, poked her head out from under Chung
+Myung's chin, apparently unable to adapt to the coldness either.
+
+"Kik! Kik!"
+
+And she glared at Chung Myung with a resentful expression as if
+questioning why he had to dress like that.
+
+"Why is someone who typically lives in a cold place acting like this?"
+
+It wasn't admirable for a warrior to shiver in the cold, but Chung Myung
+was someone who tolerated most things.
+
+He tucked Baek Ah securely and started pulling her along as he moved.
+
+"Ugh. We need to move quickly."
+
+Chung Myung moved with determination, eager to return home and fill his
+clothes with cotton next time.
+
+Dadada!
+
+His feet glided smoothly on the frozen, slippery walls of the palace.
+Even the steep cliffs of Mount Hua posed no problem for Chung Myung as
+he traversed them with ease.
+
+Chakkkkk!
+
+Uh... this was not good.
+
+At the slight noise of his slipping feet, a patrolling palace guard
+furrowed his brow and gripped his spear.
+
+Swish!
+
+But the gusty wind and relentless blizzard made it difficult to see
+anything, causing the guard to retract his spear.
+
+"This blizzard..."
+
+The snow in the blizzard pelted the wooden spear one after another,
+eliciting a frustrated click of the tongue from the guard.
+
+"This winter has been too cold."
+
+Despite the guard's uncertainties, he continued patrolling.
+
+Meanwhile, Chung Myung, who had sneaked in, assessed the situation and
+carefully climbed the wall, clinging to it once again.
+
+"Ughhh."
+
+Climbing the castle wasn't a major feat, but the direct onslaught of the
+blizzard was proving to be an issue. This wasn't snow but hail hitting
+him in the face.
+
+"If I ever return to the North Sea, I won't even be considered human!"
+
+He reached the top of the wall and clung to the side with less wind,
+pressing his ear against it.
+
+He could hear voices from inside.
+
+"Oh?"
+
+Was someone in this room? How fortunate!
+
+He was considering descending from the top, but it seemed like that was
+where most people were. That was fortunate for Chung Myung.
+
+"Ki..."
+
+"Shhh."
+
+Chung Myung gently tapped Baek Ah on the head and focused his internal
+energy as much as possible.
+
+And then, a voice came from inside.
+
+Two people.
+
+As expected, it was the voice of the Ice Palace residents.
+
+"Where are they?"
+
+When Seol Chung-sang asked the question, the first elder Naeng Byeok-wei
+spoke up.
+
+"They are in their quarters."
+
+"Hmm."
+
+The Palace Lord's eyes grew darker.
+
+"These people are interesting. Especially that Divine Dragon from Mount
+Hua."
+
+The first elder frowned.
+
+"Isn't he being too much? How dare he behave like that in front of the
+Palace Lord? It seems like his reputation has no connection to his
+manners."
+
+The first elder's voice was cold and angry, but the Palace Lord smiled.
+
+"You think so?"
+
+"...does the lord have a different opinion?"
+
+The Palace Lord rubbed his chin and replied,
+
+"Arrogance is what people call you if you're not skilled, but his
+confident attitude is different. He doesn't strike me as arrogant."
+
+"...but he's still just a warrior striving to be the best."
+
+"Why would the Beast Palace Lord introduce just a warrior to us?"
+
+"That..."
+
+The elder couldn't find an answer and fell silent.
+
+Beast Palace Lord, Meng So.
+
+All throughout these many years, the Palaces never stopped communicating
+with each other in their fight against the Central Plains and to survive
+in the harsh environment. That was how Seol Chun-sang came to know about
+Meng So.
+
+"Meng So is not someone to be underestimated."
+
+Seol Chun-sang said it.
+
+The fact that the Beast Palace Lord chose Mount Hua's Divine Dragon and
+introduced them indicated that the person was extraordinary.
+
+But...
+
+'A new era...'
+
+Seol Chun-sang had a peculiar expression.
+
+"He told me a fantastical story."
+
+There was no way the Beast Palace understood the situation of the North
+Sea, a place as cold as ice, considering it was in the warm south.
+Although they cooperated under the name of the Palaces, the Beast Palace
+and the Ice Palace came from different places with different cultures.
+
+"It is something to be dealt with cautiously. Do not cause trouble."
+
+"Yes, Palace Lord."
+
+Meanwhile, Chung Myung, who was on the other side of the wall, clenched
+his trembling mouth and frowned.
+
+'Don't blabber useless things. Say something that can actually help me.'
+
+Well, he knew these people were experts at wasting time. Fortunately,
+the Palace Lord mentioned a story that piqued his interest.
+
+"And what about their movements?"
+
+When the word 'they' was mentioned, it felt like the atmosphere changed.
+Even Chung Myung could sense it.
+
+"They, too, are not making any moves."
+
+"Hmm."
+
+"But..."
+
+"But?"
+
+The elder spoke with a tense expression.
+
+"I can sense that they've reached their breaking point. They used to be
+gloomy, but now they're like venomous creatures."
+
+"Venomous creatures."
+
+Seol Chun-sang frowned.
+
+"Those demon-like beings..."
+
+The elder looked at the lord and said,
+
+"Lord, I still don't know if bringing them in was a good idea. They're
+quite dangerous."
+
+"That's enough."
+
+"But..."
+
+"Didn't I say that's enough?"
+
+The elder lowered his head as those words sent a shiver down his spine.
+
+"I went too far."
+
+But even with the apology, Seol Chun-sang didn't relax.
+
+"There are two types of tasks in the world."
+
+"..."
+
+"One you can choose, and the other you can't."
+
+"... I apologize."
+
+Even then, for the elder, 'that task' wasn't something Seol Chun-sang
+was able to choose. It couldn't be helped. And it wasn't his role as a
+subordinate to dwell on the wounds of...
+
+"There's no need to apologize."
+
+The Palace Lord let out a gentle sigh and covered his face with his
+hand. His eyes, peeking through the gaps between his fingers, glinted
+like a demon's.
+
+"Because I made that choice."
+
+"..."
+
+Seol Chun-sang's mouth twisted. The kind smile he had shown in front of
+the disciples of Mount Hua was nowhere to be seen.
+
+It was a twisted and horrifying smile that would terrify anyone who saw
+it.
+
+"Hyung was a great lord."
+
+"..."
+
+"But that's all. He didn't change a single thing in this cursed, cold,
+and frozen land. Soon, the residents of the North Sea will realize."
+
+"Of course, my lord!"
+
+The elder agreed and bowed his head.
+
+"I can do anything for that, even if it means joining hands with the
+demons who walk the evil path."
+
+Naeng Byeok-wei trembled at those words.
+
+"But, my lord."
+
+"...."
+
+"Their insolence has gone too far. The people of the North Sea are
+afraid of them and are refraining from going outside. A mysterious
+disease is spreading through the village. If this continues, the public
+sentiment will turn hostile."
+
+It had been a long time since things had gone for the worse, but the
+elder could only report it now.
+
+".... Are people talking about people disappearing?"
+
+"Yes, they are."
+
+Seol Chun-sang's face was distorted.
+
+'Damned people.'
+
+He didn't know exactly what they were up to. What they asked for in
+return for lending them strength was land to rest and...
+
+"Leave it alone for now."
+
+"But..."
+
+"I will pay attention. But if we press them too hard without any
+evidence, we will get into trouble."
+
+"..."
+
+Naeng Byeok-wei showed slight dissatisfaction, but Seol Chun-sang didn't
+bother scolding his rudeness.
+
+"And the ice crystals?"
+
+"We are increasing their output as much as possible, but their demands
+are too high..."
+
+"Hmm."
+
+Seol Chun-sang lowered his eyes as he thought and then said,
+
+"Even if it ends up as overdoing it, dig up more ice crystals."
+
+"... Yes."
+
+Actually, many problems were occurring already, but the elder couldn't
+speak because his lord knew the facts and continued to give such orders.
+
+"... fucking worms."
+
+Seol Chun-sang's eyes turned cold.
+
+"It won't take that long. When my martial arts are complete, not only
+those guys but also the arrogant bastards of the Central Plains will
+kneel before me."
+
+"And I will endure everything until that day comes."
+
+"Huh."
+
+Seol Chun-sang stood up from his seat.
+
+"If the people of the Central Plains start investigating the Ice Palace,
+there will be a big problem. So first, grab their attention and don't
+let them make a move."
+
+"I will remember that."
+
+"You better..."
+
+At that moment, Seol Chun-sang turned his head to the side, and the
+elder didn't know why.
+
+"... Lord?"
+
+And then he immediately punched the wall.
+
+Kwaang!
+
+The wall was visibly pierced, and a part of it shattered too.
+
+"L-Lord?"
+
+The blizzard rushed in through the hole, hitting them, and Seol
+Chun-sang shook his head with fierce eyes.
+
+"I may have overreacted."
+
+"..."
+
+"Have your men fix this wall."
+
+"Yes!"
+
+He glanced at the wall and then walked out with long strides. Left alone
+with the hole in the wall, the elder could only look at it.
+
+'The Lord is becoming increasingly paranoid with each passing day.'
+
+He could understand that, but...
+
+"Haa."
+
+He sighed as he, too, left the room.
+
+And...
+
+'Wow, that was shocking.'
+
+Chung Myung, who leaned against the wall next to the hole, tapped his
+chest.
+
+"He is so sensitive."
+
+He never expected to be discovered in the midst of the blizzard and
+strong winds. This meant that Seol Chun-sang's skills were more
+impressive than he anticipated.
+
+"Ugh! So cold!"
+
+No matter what, he would freeze to death before anything else if he
+didn't move.
+
+Chung Myung climbed up the wall and approached the hole. He peered
+inside to find papers on the desk.
+
+"Yah, let me check this out."
+
+"Kik?"
+
+He reached into his pants and pulled out Baek Ah. Baek Ah used her paws
+to grab onto Chung Myung's clothes as if she never wanted to let go.
+
+"... Ah, my throat has been so sore lately. I need a scarf."
+
+Baek Ah flinched.
+
+And then nodded.
+
+She jumped out of Chung Myung's hand and rushed inside as swiftly as
+light.
+
+Tak.
+
+In an instant, she grabbed the papers and brought them back to Chung
+Myung, quickly hiding them in his clothes.
+
+"Hmmm."
+
+Chung Myung put the paperwork back in place and smiled.
+
+"So they don't have a good relationship with the Demonic Sect, huh?"
+
+He obtained a good amount of information. And one of them was what Chung
+Myung wanted to know the most.
+
+"There might be a problem if the Central Plains start investigating the
+Ice Palace. For now, divert their attention and prevent them from
+moving."
+
+"Ah, I said not to bother me, right?"
+
+Kuak.
+
+It didn't sit well with him if it was put that way.
+
+"Didn't he say it, sahyung? Hehe."
+
+-Aren't you cold?
+
+"Wow! I'm going to freeze to death."
+
+Chung Myung's body glided like a ghost.
+
+Tat!
+
+After a while, he landed on the ground silently.
+
+"Who are you?"
+
+Huh? Caught....!
+
+Kwang!
+
+"ACKKKKKK!"
+
+Chung Myung watched as the warriors of Ice Palace were sent flying in
+fear by his single kick.
+
+Ah...
+
+Maybe he should have thought before hitting the guy, but his feet acted
+first.
+
+This was a bad habit of his.
+
+"Who is that!"
+
+"An intruder!"
+
+Shouts echoed from all around the palace.
+
+Feeling a bit embarrassed by his actions, Chung Myung looked up.
+
+'And they've come to our place...'
+
+Oh! Over there.
+
+Perhaps startled by the commotion, Baek Cheon's head appeared at the
+window, and their eyes met. Despite the raging blizzard, they locked
+gazes.
+
+'Nice. Then I should go...'
+
+At that moment.
+
+Baek Cheon, still smiling, reached for the window.
+
+Then
+
+Tak.
+
+Closed it without another thought.
+
+"..."
+
+Chung Myung's eyes trembled as he stared at the tightly shut window.
+
+"Wow...."
+
+Look at that brat!
+
+[]{#0481_Episode_481_Nothing_Happened_1.xhtml}
+
+#

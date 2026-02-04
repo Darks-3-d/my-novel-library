@@ -1,0 +1,455 @@
+---
+title: "Chapter 725"
+weight: 725
+---
+
+Episode 724: I Am Back (4)
+
+As Chung Myung entered the sect leader's residence with an arrogant
+frown on his face, complaints flowing from his mouth.
+
+"I don't get it. It's been a while since I finished. How can you call
+someone in a hurry... uh?"
+
+But then he fell silent.
+
+The atmosphere among the people gathered inside was different from what
+he expected. He didn't know much about other matters, but Hyun Jong...
+
+Uh... why was he lying down?
+
+No, did he fall asleep the wrong way?
+
+"S-sect leader!"
+
+"Come to your senses, sect leader!"
+
+"Soso! Call Soso! Quickly, Soso... uh? Soso! Do something for the sect
+leader!"
+
+"Ku-kuaak!"
+
+At that moment, Hyun Jong raised his upper body and took a breath as if
+he were leaping up. His pale face resembled that of a person rescued
+from drowning.
+
+"This, this, this...what... is this..."
+
+His hands were trembling wildly, making even the book in his hand
+tremble.
+
+"This, this... The... Purple Sky..."
+
+'Purple Sky Divine Arts.'
+
+Only then did Chung Myung relax and return to his usual grumpy demeanor.
+
+Hyun Jong glared at Baek Cheon with a mix of shock, disbelief, fear, and
+anger (?).
+
+"T-this... why all of a sudden? Why now?"
+
+"Ah, that..."
+
+Baek Cheon responded politely.
+
+"This was discovered during the process of recovering the ancestors'
+remains."
+
+"You mean...?"
+
+"Yes!"
+
+He answered loudly and nodded proudly. When the sect leader embraced him
+joyfully, one might wonder if he could handle the hug.
+
+However, Hyun Jong's reaction was a bit different from what was
+expected.
+
+"... why... now?"
+
+"Ah, that..."
+
+When Hyun Jong asked with a blank expression, Baek Cheon scratched the
+back of his head.
+
+"Since we are in the midst of a serious ancestral ritual, it would be
+appropriate to report when we have some free time... ugh!"
+
+At that moment, Hyun Jong leaped over the table in front of him like a
+lightning bolt and kicked Baek Cheon in the chest with both feet.
+
+As Baek Cheon was thrown back by the unexpected attack, everyone's eyes
+widened in shock.
+
+'What did I just see...?'
+
+'Did the sect leader hit Sasuk?'
+
+'Not beating is okay... but a flying kick?'
+
+Hyun Jong, who had fallen to the ground, jumped up and shouted.
+
+"Yah, you insane bastard! Do you know what this is, and you report it
+later? Do you know what... Euk!"
+
+"S-sect leader!"
+
+"Uahhh! Soso! Soso! Hurry up!"
+
+Looking at the chaotic scene, Chung Myung stood blankly and smiled.
+
+'What shit.'
+
+Chung Jin. Close your eyes for a moment.
+
+Just for a moment.
+
+"... therefore."
+
+"... Yes."
+
+Hyun Jong was glaring at Baek Cheon, who was sullen and had lowered his
+head.
+
+"You thought you could report it later?"
+
+"... Yes."
+
+In response, Hyun Jong's hands were clenching the inkstone on the desk.
+
+"S-sect leader! Calm down first!"
+
+"It is Baek Cheon! Not Chung Myung!"
+
+"If Chung Myung was doing this, I wouldn't have said a thing! That guy
+doing it is the problem! How can the so-called Great Disciple be so
+thoughtless about how important this was? Yah, you bastard! This! Uh?
+You know how important this is?"
+
+"Calm down, Sect leader. What can a child know? He doesn't have that
+much experience."
+
+Hyun Sang stopped Hyun Jong with a serious face.
+
+And Baek Cheon looked at them with blank eyes.
+
+So... uh, surely...
+
+-Elder. There is something we picked up with the ancestor, and I wonder
+if I should tell the sect leader about...
+
+-Now isn't the time for it. Let's talk once the ritual is all done.
+
+... Elder?
+
+At that moment, Hyun Sang and Baek Cheon looked at each other.
+
+Hyun Sang's eyes were clearly saying, 'If you speak out without much
+thought, you will experience cruel punishment accompanied by violence.'
+
+Baek Cheon closed his eyes in sadness at that. The corners of his eyes
+were turning moist.
+
+There was no man he could trust... no, they always said that there was
+no one to trust in the world.
+
+At that time, Un Geom, who had been quietly observing the situation,
+changed his stance.
+
+"But sect leader? Is this book of that importance?"
+
+"Uh? Ah... this martial arts book..."
+
+Baek Cheon looked back at Un Geom with touched eyes.
+
+'Sasuk!'
+
+He felt like his heart had been betrayed by the Elder, but now it was
+filled with admiration for Un Geom.
+
+With trembling hands, Hyun Jong flipped through several pages. It was a
+careful touch as if he would damage the book with little force. After a
+while, he closed his eyes and spoke with a trembling voice.
+
+"This martial arts book is..."
+
+"... Yes."
+
+"... Purple Sky Divine Arts."
+
+"..."
+
+A heavy silence fell around.
+
+Un Geom, whose face turned serious, opened his mouth again.
+
+"Sect leader."
+
+"Right. You should understand why..."
+
+"What is the Purple Sky Divine Arts...?"
+
+"... Uh?"
+
+Hyun Jong looked straight at Un Geom with flustered eyes.
+
+"Don't know?"
+
+"Yes. I don't..."
+
+"You don't know?"
+
+"... You never told me."
+
+Hyun Jong tilted his head.
+
+"I didn't... say it?"
+
+His eyes turned to Baek Cheon with sadness. But that was for a moment,
+and he turned his eyes away.
+
+Baek Cheon could roughly guess the situation, and he had a look of
+resentment. Yoon Jong gently grabbed his shoulder and comforted him.
+
+"... that is the matter, sasuk."
+
+Hyun Jong cleared his throat awkwardly and spoke to lighten the mood.
+
+"So this cultivation art is said to be one of the best on Mount Hua."
+
+"... ah, now that I think about it, but I think it had a different
+name... isn't the Sect Leader talking about Purple Sky Enhanced Qi?"
+
+"Yes, this is it."
+
+"Uh?"
+
+Hyun Jong looked blankly at the book Yoon Jong took out of his arms. His
+eyes gradually turned red.
+
+"Where did you get this again?"
+
+"... it looked like something that was kept safe and given by our
+ancestor, but we recovered it from the scammer. It is said that it is
+the Purple Sky Enhanced Qi."
+
+"There was a Plum Blossom Sword Bind behind it, right?"
+
+"Ah, yes. Although it might look like one book, it is two; one is Purple
+Sky Enhanced Qi, and the other is Plum Blossom Sword Bind."
+
+"...."
+
+Shock swept around the room once again.
+
+Hyun Jong, barely coming to his senses, looked at the book and the Five
+Swords on the ground several times.
+
+"... so...."
+
+As he tried to organize his thoughts, he eventually gave up and held his
+face with both hands.
+
+"What is with these children?"
+
+They went to catch that impersonator and picked up their sect's martial
+arts? This wasn't something to stumble upon in the street...
+
+And if they retrieved those things, why did they keep them hidden like
+they were nothing special? These morons!
+
+"... sect leader, the words you need to be thinking are becoming clear
+outside."
+
+"Uh? Y-You heard it?"
+
+"Yes... 'These morons!' was heard."
+
+Hyun Jong cleared his throat, his face a bit red.
+
+"So... this..."
+
+"Aho! My stomach hurts!"
+
+Hyun Young, who had been quiet for a while, lost control and suddenly
+became irritated. Then, he snatched the book Hyun Jong was holding.
+
+"This is the Purple Sky Divine Arts! And that is the Purple Sky Enhanced
+Qi!"
+
+"... are they two different?"
+
+"They are different! It can be said that Enhanced Qi arts are the
+strongest of Mount Hua. And the Enhanced Qi is different from Seven
+Sages Sword and Plum Blossom Arts."
+
+"Then Purple Cloud Divine Arts?"
+
+"The Divine Arts go even further. It is the best cultivation technique
+of Mount Hua, which only the sect leader can learn."
+
+"Oh..."
+
+"Woahhh..."
+
+The admiring and awe-filled eyes all focused on Hyun Young, who
+explained it all.
+
+Of course, they all knew that it was a great martial arts skill to
+acquire, but they never thought that only the sect leader of Mount Hua
+could learn it.
+
+"But why is..."
+
+"Right."
+
+Why would someone other than the sect leader be in possession of these
+martial arts? The 13th generation Sect leader was Chung Mun....
+
+"Give it here."
+
+When Hyun Jong extended his hand, Hyun Young handed it over.
+
+Hyun Jong took it and sighed as he carefully placed it on the table.
+
+"... huh."
+
+Hyun Jong, smiling as if he found it astonishing no matter how much he
+thought about it, turned to Baek Cheon.
+
+"Did you mention that the ancestor concealed himself in a deep cave?"
+
+"Yes, sect leader."
+
+"... I see. Then the ancestor...."
+
+Hyun Jong, pondering over it, nodded.
+
+'In the end...'
+
+Hyun Jong's eyes welled up as he gazed at the book.
+
+This martial arts manual was meant for the sect leader, symbolizing the
+leadership of the sect.
+
+Despite assuming the role of Sect Leader in accordance with the
+predecessors' wishes, he couldn't help but harbor doubts in his heart,
+as neither he nor his predecessors were outstanding sect leaders.
+
+However, the Purple Sky Divine Arts had finally returned to Mount Hua's
+embrace.
+
+"The ancestor's benevolence... flows like a river..."
+
+Hyun Jong muttered wearily and gently caressed the book's half-cover,
+saying,
+
+"Martial Arts hall leader."
+
+"Yes, sect leader."
+
+Hyun Sang quickly responded with a solemn expression.
+
+"Retrieve the book, verify its authenticity, assess any damage, and
+determine if restoration is possible."
+
+"Yes!"
+
+"This is of utmost importance, so be meticulous."
+
+"Yes, sect leader! However..."
+
+However, Hyun Sang, who had been speaking confidently, hesitated for a
+moment.
+
+"Sect leader, I can verify the first two tasks. Yet, this is unfamiliar
+to me; it may take time to comprehend its significance, although
+comparing it to Mount Hua's martial arts won't be challenging."
+
+"Hm, go on."
+
+"But... I cannot verify it alone."
+
+"Hmm... why?"
+
+"According to Mount Hua's laws, only the sect leader can learn the
+Purple Sky Divine Arts. Unless it is the sect leader, we aren't even
+allowed to read it. This is because seeing and confirming the martial
+arts and examining the true meaning of it is the same as learning it."
+
+"Eh? Really? Then, what is the deal?"
+
+While the conversation was turning serious, a voice suddenly interrupted
+their talks.
+
+Suddenly, receiving the attention, Chung Myung waved his hands with an
+awkward smile.
+
+"Hehe... don't worry about it. It isn't like we only have a day or two."
+
+"..."
+
+It was true that this wasn't a process to happen in a day or two.
+
+But one shouldn't say that out loud, Chung Myung.
+
+"Hmm. Fine, then, what should I do?"
+
+"Even if you give permission to see it, the order has changed. It would
+make no sense to check the martial arts that the sect leader hasn't even
+mastered. You should work hard... and check it for yourself."
+
+"... me?"
+
+"Yes, sect leader!"
+
+Hyun Sang's voice grew loud.
+
+"A skill which only Mount Hua's Sect leader can officially learn. Of
+course, the best thing to do is for you to see and learn it yourself!"
+
+At that moment, all of Mount Hua's disciples gathered in the room,
+turned, and looked at Hyun Jong with bright eyes.
+
+It was impossible to ignore the expectations they had. Cold sweat began
+to flow down Hyun Jong's back.
+
+'The best martial arts of Mount Hua.'
+
+'The strong divine arts which only the sect leader can learn!'
+
+'How strong will the sect leader become with this?'
+
+'He should easily take down Chung Myung, right?'
+
+'Please! Please!'
+
+Facing all those looks would make anyone feel burdened and want to run.
+Hyun Jong awkwardly asked Hyun Sang.
+
+"Me?"
+
+"Yes, sect leader."
+
+"At this age?"
+
+"... Does age matter?"
+
+Hyun Jong's head shook and bowed.
+
+Even though they were obviously the same, the feelings and eyes had
+changed since a moment ago.
+
+'You want me to learn this?'
+
+The best martial arts of Mount Hua? At this age?
+
+Hyun Jong slowly raised his head. He smiled brightly without realizing
+it as he looked into the eyes filled with anticipation.
+
+This was age-based abuse.
+
+[]{#0725_Episode_725_I_Am_Back_5.xhtml}
+
+#

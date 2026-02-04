@@ -1,0 +1,457 @@
+---
+title: "Chapter 866"
+weight: 866
+---
+
+Episode 865: Even If I Don\'t Know Where You Are, I Know Where You Belong (5)
+
+"Kill and rob."
+
+It wasn't a particularly great phase.
+
+That was obvious to those who called themselves Evil.
+
+It was a phrase used by those who rejected the rites and laws that bound
+people.
+
+If there was something they needed, they'd get it, even if it meant
+stealing. If there was something they wanted, they would take it, even
+if it meant killing. Those who found that uncomfortable probably didn't
+belong to Evil.
+
+But no one took these words from Gal Cheon-rip's mouth lightly.
+
+"Are you speaking about here, in the north?"
+
+"Yes."
+
+"...easier said than done!"
+
+Negative reactions erupted around the room.
+
+The reason why these reactions came from those who had no aversion to
+killing and taking was simple.
+
+The Northern lands they were treading on were ruled by the Nine Great
+Sects and Five Great Families.
+
+If it had been just a few years ago, they would have been less
+concerned. Even if the force of the two factions was that great if they
+started a fight and the problem got bigger, they would just cross the
+Yangtze River and head south.
+
+The world was vast.
+
+That was why even if they were chased by the Nine Great Sects, they
+could not chase them to the end of the land.
+
+But now, they were in a state where they could not set foot back into
+their land. The moment they set foot there, they would die by the blade
+of Jang Ilso.
+
+"We are not doing this because we are happy. The moment we act as we
+want to, those bastards will come running to us with anger in their
+eyes. How are you going to kill them and take their things away?"
+
+"You are not saying you want to fight the Nine Sects, right?"
+
+"Don't forget this is the north."
+
+"...we came here for nothing. We didn't come here to listen to such
+nonsense."
+
+Despite the voices of criticism from around, Gal Cheon-rip snickered.
+The soft laughter drove everyone back into silence.
+
+"...what is so funny?"
+
+The First Killer stopped laughing and opened his mouth at the question
+from Soul Breaking Killer.
+
+"It is funny. Of course it is."
+
+He shrugged his shoulders and twisted his lips into a smile.
+
+"How could it not be funny to see those starving to death drooling while
+a feast is placed right in front of them?"
+
+In an instant, a serious killing intent surged through the quiet room.
+
+Everyone in the room glared at Gal Cheon-rip with eyes that seemed like
+they wanted to devour him. Then, the Seven Killers of Jiangxi, guarding
+Gal Cheon-rip, bared their teeth and stepped forward.
+
+"Not even knowing your..."
+
+At that moment, Gal Cheon-rip lifted his hand and stopped them.
+
+"Quiet."
+
+"... yes, big bro."
+
+Then he narrowed his eyes and asked.
+
+"Did I say something wrong?"
+
+"...."
+
+"You must have held your breath because you couldn't do anything right
+away. Those who saw blood on their land are more vicious than those who
+had their money stolen. So you must have thought to wait and see. But...
+did anything get better?"
+
+No one spoke.
+
+It had been 2 years.
+
+They had been sucking their thumbs for 2 years now without doing
+anything. But everyone felt that even that had reached its limit now.
+
+"In the end, it is obvious what fate you will face: either hold on and
+hold on until you die of hunger. Or... in the end, you cannot hold on
+and do something yourself or get caught by someone and get stabbed in
+the back."
+
+Severing the muscles in their limbs and cutting off their pulse.
+
+A punishment that destroyed a warrior's life by having their limbs cut.
+If the dantian was destroyed, one could not use their internal qi, but
+they could still use their martial arts learned through the body. But
+those who had been hit on their blood points could not use their hands
+and feet properly, so they could not even live normal lives.
+
+The Nine Sects imposed that punishment on the Evil Sect who committed
+terrible crimes.
+
+The faces of those who heard this were filled with displeasure. However,
+the reason no one objected greatly was because they also intuitively
+felt that the obvious future awaited them.
+
+"So what are you going to do? Stop whining and tell."
+
+"I told you."
+
+Gal Cheon-rip sneered.
+
+"Even if we gather in small groups, we will only be robbing small ones.
+If we are going to rob, we should choose a good place. A place where
+everyone can live without concern for the rest of their lives."
+
+"What about the catch?"
+
+"If you have money, there is nothing to worry about. And even if it was
+in the past, they cannot chase you for long now. Just go to Xinjiang or
+Cheonghae, and when things calm down, we move back with fake
+identities."
+
+"Hmmm."
+
+Different thoughts unfolded in the minds of those who heard that.
+
+'They won't choose us anyway.'
+
+'We're moving to Xinjiang.'
+
+'We cannot live up to the reputation of the Seven Killers of Jiangxi.'
+
+Those who briefly joined hands tended to disperse when the work was
+done. No matter how fast the pursuers chased, they wouldn't be able to
+catch everyone who participated in the crime.
+
+In that case, they had no choice but to give priority to those with
+great reputations. And the most famous people there were the Seven
+Killers of Jiangxi, no matter what anyone else thought.
+
+"Not bad."
+
+"Definitely. I am sick of just sucking on my thumb like this."
+
+"Damn it. It isn't the money! Those Nine Sects are openly looking down
+on us. How long should I keep my mouth shut?"
+
+"... it's like this now, and if the Wudang and Southern Edge open the
+gates...."
+
+There was a reason why the Evil Sects gathered in the Southern land in
+the first place. It was because it was too difficult to do business in
+the north, where many of the Nine Sects were located.
+
+The sects guarding the center of the north were Shaolin, Wudang, Beggars
+Union, Southern Edge, and Namgung.
+
+Even though two of the five sects had shut their gates, the pressure
+made it difficult to breathe. If that was the case, wouldn't it be
+obvious what would happen if those two sects lifted their Closed Gates?
+
+"So?"
+
+Gal Cheon-rip raised his head.
+
+The Soul Breaking Killer was staring at him coldly with arms crossed.
+
+"Where are you planning to raid with all these people gathered here? It
+shouldn't be an ordinary place."
+
+"Of course not. I am going to raid one of the ten sects of the Central
+Plains."
+
+"Ten sects?"
+
+"Are you even in your right mind?"
+
+When the words "ten sects" came out, everyone fell silent.
+
+"This is nonsense."
+
+The Soul Breaking Killer also shook his head.
+
+"If it is a place like that, it has to be related to the Nine Great
+Sects or Five Great Families. The Nine Sects who robbed us of our lives
+will come chasing after us if we touch anything."
+
+"You don't have to worry about that. The place I am going to rob does
+not have much chance of being tracked."
+
+"Hmm?"
+
+"There is no guard for them, and there is just one place where the
+warehouse is thicker than anywhere else."
+
+"... Where is that?"
+
+"Eunha Merchant Union."
+
+The people gathered frowned and whispered at Gal Cheon-rip's words.
+
+"Eunha Merchant Union?"
+
+"... Such a place exists?"
+
+"Ah. If it is the Eunha Express Delivery, then is it easy to
+understand?"
+
+"... You are going to rob that?"
+
+"In recent times, it has risen to the top ten in merchant unions in the
+Central Plains. But that doesn't mean it is at the bottom, either. It is
+a place with money swelling up."
+
+"How could there not be an allied sect with such a place?"
+
+"Of course there is. But not now. The ally is Mount Hua."
+
+"..."
+
+Those who finally understood the situation glared.
+
+"... Mount Hua, who was the flame, is their ally."
+
+"An interesting story."
+
+"And..."
+
+At that moment, Iron Ghost, who had been listening silently, spoke.
+
+"Now, the Shanxi sects are under Closed Gates."
+
+"... and the place is close to Cheonghae. If we leave Shanxi, we will be
+safe."
+
+Those who had guessed the situation roughly laughed, unable to hide
+their joy.
+
+"There might be escorts and guards, but even they will be a bunch of
+idiots."
+
+"A small shop with no owner is no different from a treasure trove with
+the door wide open."
+
+"There is no owner?"
+
+But the Soul Breaking Killer still seemed unconvinced.
+
+"You seem to be mistaken. Do you think being in Closed Gate means being
+locked in? Even if they live in seclusion, the moment a fire starts in
+the front yard, they will come to put it out."
+
+"Ah. I know. Of course, they will open the gates."
+
+Gal Cheon-rip nodded calmly.
+
+"Hmm?"
+
+"But... isn't that the same even if they do it? Surely..."
+
+He looked at everyone in the room.
+
+"You are not trying to say that these many people cannot handle Mount
+Hua, are you?"
+
+Everyone who heard that laughed softly.
+
+Not all of the people gathered there.
+
+Of course, there were some who acted alone, but about half of them were
+leading small troops. If they could gather all of it, dealing with a
+decent sect was no problem.
+
+"It would be burdensome if it was of the Nine Great Sects level... but
+Mount Hua, who doesn't even belong there, should be manageable."
+
+"Don't look down on them; Mount Hua leads the Heavenly Friends
+Alliance."
+
+"He is the leader in name. Is there even one moron who thinks Mount Hua
+is stronger than the Sichuan Tang family?"
+
+Mount Hua was a prestigious sect in the past, and a few years ago, it
+was at the center of a world-shaking incident and gained fame.
+
+But, objectively speaking, Mount Hua was nothing more than a small-scale
+sect that was nowhere near the level of the Nine Great Sects or Five
+Great Families. Fame and skill weren't always the same.
+
+Mount Hua's Swordsmen, whose name faded long ago, gained fame by
+fighting Jang Ilso, the leader of the Four Precepts Alliance. To be
+blunt, that was only Mount Hua Sword Saint's achievement and not Mount
+Hua's.
+
+"Even so, it is clear that they are members of the Heavenly Friends
+Alliance, right?"
+
+"There is no reason to worry about the Heavenly Friends Alliance. The
+main force of the alliance, the Tang family, is tied to the Yangtze
+River, and there is no need to care about their pursuits. The rest of
+the northern bastards are far from the Central Plains."
+
+Those who had roughly finished calculating looked at each other with
+meaningful glances.
+
+"So, if we can just handle Mount Hua, we don't have to worry about
+anything else."
+
+Gal Cheon-rip nodded vigorously.
+
+"It seems like everyone understands now."
+
+"Is it really alright?"
+
+"If you are scared, get out now."
+
+"...."
+
+Those gathered looked at one another. It was definitely a tempting
+story. But there was something on their minds.
+
+One of those watching raised his hand.
+
+"I am out."
+
+Gal Cheon-rip looked at the person who raised his hand with a smile.
+
+"I have never heard of the Shadowless Mad Killer being a coward."
+
+"I am not saying this out of fear. Even if I escape here, I will still
+have to return to the Central Plains. I don't want to live my entire
+life being chased."
+
+"Right. It isn't a bad choice. But..."
+
+At that moment, a sword was pulled out from Gal Cheon-rip's waist like a
+ray of light.
+
+Crack!
+
+At the same time, Shadowless Mad Killer's arm, which had been raised,
+was cleanly cut off and shot into the air.
+
+'ACKKKKK!"
+
+A desperate scream came from his mouth as he grabbed the severed arm and
+fell from the chair to the ground.
+
+Step. Step.
+
+Gal Cheon-rip approached him with a calm look and trampled on his face.
+
+"K-Kuak..."
+
+"This is what you call a coward. And I hate cowards."
+
+"E-enough..."
+
+Slash!
+
+Shadowless Mad Killer's body, whose head had been severed in an instant,
+fell limply to the ground.
+
+"...."
+
+Everyone remained silent as if bound by an unspoken agreement.
+
+If it was the Shadowless Mad Killer, most of the people there were
+strong enough to not be able to guarantee victory. Such a person died
+like a fly in this fight without even fighting back.
+
+'Ghost Blade.'
+
+This scene proved why he was the first among the Seven Killers of
+Jiangxi, and the title of Ghost Blade Killer made the world tremble.
+
+"Tsk."
+
+Gal Cheon-rip, who had wiped the blood from his body, looked around at
+the others.
+
+"Anyone else wants out?"
+
+No answer came back.
+
+Even if Gal Cheon-rip hadn't done anything, the people there would have
+said something. And since they had witnessed this now, they wouldn't
+speak back.
+
+"There is no one wanting out."
+
+The Soul Breaking Killer stared at Gal Cheon-rip with arms crossed.
+
+"But you should be prepared for one thing. If you gather this many
+people and move, one shouldn't expect control. Hell will unfold now."
+
+"Nice. Very nice."
+
+Gal Cheon-rip smiled, showing his teeth.
+
+"In the name of the Seven Killers of Jiangxi, I permit it. Go wild as
+you please. Anyway, I will be the one handling the aftermath."
+
+"If you say so."
+
+The moment the Soul Breaking Killer nodded, everything was decided.
+
+"The nine Sects must have heard through the Beggars that we are here. We
+don't have the resources to stop them, but there is no point in wasting
+time."
+
+"Then when are you going to move?"
+
+"Tomorrow."
+
+"... in one day?"
+
+"Why? Is there any reason not to?"
+
+The Bloody Blade Killer slowly licked his lips after hearing those
+words.
+
+"Of course. I was already bored to death now."
+
+"Not just you. Bring everyone who is interested. I will do it in a
+flashy way."
+
+The wolves, who had been enduring hunger for a long time, smiled
+bitterly at the smell of blood wafting from them.
+
+[]{#0866_Episode_866_This_Is_The_Land_Of_Mount_Hua_1.xhtml}
+
+#
